@@ -1,0 +1,1 @@
+A young, motivated individual with an engineering mindset and experience in renewable energy, instrumentation, and technical know-how. Skilled in applying the design thinking process to develop innovative solutions and prototype concepts. Possesses strong knowledge in circuit design and power system analysis.
